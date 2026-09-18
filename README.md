@@ -1,1 +1,0 @@
-# VAYNOR.SM
